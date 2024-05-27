@@ -12,7 +12,7 @@ I have over 4 years of experience working with multiple platforms and systems cr
 >   - **[European Space Agency](https://www.roblox.com/groups/14805734/European-Space-Agency-ESA#!/about) | 2022 - Present**</br>
 >       - My own group and I have coded the majority of the rocket systens, survivability systems and various things to make the game better.</br>
 
-My standard rate is €10/Hour. A price estimate will be provided before-hand but you will be informed of any delays or trouble that might arise causing me to take more time than initially planned. </br>
+My standard rate is €10/Hour. (Additional €5 is added as a fee for the project start) A price estimate will be provided before-hand but you will be informed of any delays or trouble that might arise causing me to take more time than initially planned. </br>
 
 ### Contact
 > Discord: m_anfred
