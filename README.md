@@ -14,9 +14,9 @@ I have over 4 years of experience working with multiple platforms and systems cr
 
 ### Videos
 
-https://streamable.com/451n9w
-https://streamable.com/bkihep
-https://streamable.com/hdg2lq
+https://streamable.com/451n9w</br>
+https://streamable.com/bkihep</br>
+https://streamable.com/hdg2lq</br>
 
 My standard rate for commissions is £10/Hour unless otherwise negotiated. A price estimate will be provided before-hand but you will be informed of any delays or trouble that might arise causing me to take more time than initially planned. </br>
 
